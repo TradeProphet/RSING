@@ -8,4 +8,3 @@ The relative strength index has long been a standard tool for technical analysts
 
 BY: Alon Horesh
 http://traders.com/
-http://technical.traders.com/archive/archivelogin.asp?file=\V39\C03\200HORE.pdf&src=SC
